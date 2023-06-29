@@ -1,1 +1,1 @@
-coding is a peaceful chaos
+coding is not easy!
